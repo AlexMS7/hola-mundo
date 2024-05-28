@@ -2,4 +2,6 @@
 
 Mi primer repositorio
 
-i love 🧉, 🐈
+me gusta el 🧉 y los animles como los 🐈
+
+aprendiendo de la profe nati
